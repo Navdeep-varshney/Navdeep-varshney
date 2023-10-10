@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Navdeep-varshney
+- 👀 I’m interested in DATA SCIENCE
+- 🌱 I’m currently learning MACHINE LEARNING, DEEP NUERAL NETWORK, NATURAL LANGUAGE PROCESSING, DATA ANALYTICS.
+- 💞️ I’m looking to collaborate on PROJECTS.
+- 📫 Reach me at +91 8700422841,same for whatsapp, navdeepvar123@gmail.com.
